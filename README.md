@@ -1,2 +1,0 @@
-# naturalbeauty
-mesmerizing nature
